@@ -1,1 +1,1 @@
-# landingpage-skillcrafttechnogy-webdevelopment-internship-
+# landingpage-skillcrafttechnogy-webdevelopment-internship-task
